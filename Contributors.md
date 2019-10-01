@@ -14,6 +14,7 @@
 - [Uneet Patel](https://github.com/Uneetpatel7)
 - [sigmund](https://siggymc.deviantart.com)
 - [Eddenm]
+- [Casserole Smith]
 - [Edwin Sumbayak](https://github.com/edwinsbyk)
 - [Claudia Vargas] (https://github.com/claucvk)
 - [igor](https://github.com/igorshiota)
